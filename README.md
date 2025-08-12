@@ -1,6 +1,6 @@
 Thanks 
 
-MR-ZAHER
+7.00 - 9.60
 
 THAT COPY FROM NAZKY PAGE 
 
